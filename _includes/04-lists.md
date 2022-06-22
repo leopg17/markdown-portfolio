@@ -1,1 +1,5 @@
-Replace this with a list of your favorite things.
+Cosas que me gustan hacer:
+* Aprender 📖
+* Mejenguear ⚽
+* Pasar tiempo con mi familia 👪
+* Hacer parrilladas 👍
