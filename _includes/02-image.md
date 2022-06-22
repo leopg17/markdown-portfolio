@@ -1,0 +1,1 @@
+![Futuristic Image](https://img.freepik.com/foto-gratis/hombre-tiro-medio-gafas-vr_23-2149126949.jpg?t=st=1655912772~exp=1655913372~hmac=0dabe97eaa5d696f913862639673064b90cd23f1c01b540383462f8c01f53406&w=1380)
